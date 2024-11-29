@@ -1,1 +1,1 @@
-# GDE-adatb-zis-szerverek
+GXC0I6 
