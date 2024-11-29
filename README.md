@@ -1,0 +1,1 @@
+# GDE-adatb-zis-szerverek
